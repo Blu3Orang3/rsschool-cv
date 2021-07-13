@@ -101,17 +101,3 @@ English
 
 C1 (CEFR) / Advanced.
 
-ACTIVITIES AND INTERESTS
-------------------------
-
-Travel
-
-I like to explore new cities and countries, and I like trekking. I've been to the Annapurna base camp, and now I want to visit the base camp of Everest.
-
-Blogging
-
-I love to write tutorials and articles about the technologies I use and learn.
-
-Science
-
-Fond of History, Astronomy, and Physics. I wish to see Betelgeuse supernova explosion someday even though the expected explosion date is somewhere between today and 100k years. ☺️
